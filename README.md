@@ -8,3 +8,4 @@ I'm a third year student pursuing a Btech degree in electronics and communicatio
 #Ways to contact me
 
 LinkedIn : https://www.linkedin.com/in/arkaprava-majee-022157190/?originalSubdomain=in
+Instagram : 
